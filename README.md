@@ -1,2 +1,0 @@
-# abdazizset
-bikin baru lagi
